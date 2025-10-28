@@ -25,3 +25,6 @@ It explores the world of dreams and the power of the subconscious mind.
 ### 📺 Final Thoughts
 Inception challenges how we think about **time, dreams, and perception**.  
 Every time you watch it, you notice something new!
+
+### 🧠 Favorite Quote
+> "You mustn’t be afraid to dream a little bigger, darling." – Eames
